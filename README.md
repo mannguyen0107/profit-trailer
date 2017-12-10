@@ -15,6 +15,7 @@ https://t.me/joinchat/FWYlMkKK-mkrSuj836ehug
 |Spanish            | https://t.me/joinchat/FmiiRhEiz1VMEfaf1ch4Hg  |
 |Dutch              | https://t.me/profittrailernl                  |
 |Chinese            | https://t.me/joinchat/GfcIGQ9Hnnzb47i1Ka0vXA  |
+|Vietnamese         | https://t.me/joinchat/F7C8rxEyWD3lzP7lFjJ17g  |
 
 
 
