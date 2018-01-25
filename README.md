@@ -18,7 +18,7 @@ https://discord.gg/K9a37Vh
 |Dutch              | https://t.me/profittrailernl                  |
 |Chinese            | https://t.me/joinchat/GfcIGQ9Hnnzb47i1Ka0vXA  |
 |French             | https://discord.gg/cQ5CX8e                    |
-|Vietnamese         | https://t.me/joinchat/F7C8rxEyWD3lzP7lFjJ17g  |
+|Vietnamese         | https://discord.gg/qdx3caZ                    |
 |Danish & Norwegian | https://t.me/joinchat/GZCwC0WiSZpEozwfym_7jA  |
 |Greek              | https://t.me/joinchat/FuOtHEXU7yCSWzk9f_-5Zg  |
 |Hebrew             | https://t.me/joinchat/FeF9nRH3uo2gWQ5tBVAmMg  |
